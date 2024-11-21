@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **anshumohanacharya19@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NucXaE0w3K0MYqioqjtztX79y99Tfljz/view?usp=sharing](https://drive.google.com/file/d/1rw7-7BSSBaRNy4YutNV9KeIPzvV9cniN/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1m4mkXA-ZXO1xgNPSAG7Jijb2_adOH9vd/view?usp=sharing)
 
 - ⚡ Fun fact **I am a coffee lover , let's talk on a cup of coffee!!**
 
