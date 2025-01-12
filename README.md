@@ -5,13 +5,13 @@
 
 - 🌱 I’m currently learning **Deep Learning**
 
-- 👨‍💻 All of my projects are available at [https://anshu-portfolio-five.vercel.app/](https://anshu-portfolio-five.vercel.app/)
+- 👨‍💻 All of my projects are available at [https://www.anshumohan.dev/](https://www.anshumohan.dev/)
 
-- 💬 Ask me about **MERN Stack , Machine Learning projects**
+- 💬 Ask me about **MERN Stack , Machine Learning projects , DevOps , Cloud Computing**
 
 - 📫 How to reach me **anshumohanacharya19@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1m4mkXA-ZXO1xgNPSAG7Jijb2_adOH9vd/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1-yAaQlEtr4CQdOE-wAqXGPjcgKolvWi4/view?usp=sharing)
 
 - ⚡ Fun fact **I am a coffee lover , let's talk on a cup of coffee!!**
 
